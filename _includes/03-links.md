@@ -1,1 +1,1 @@
-https://rainbowhigh.mgae.com/
+[Rainbow High](https://rainbowhigh.mgae.com/)
